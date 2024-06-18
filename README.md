@@ -1,4 +1,4 @@
 وقتی داشتم میباختم هنوز لبخند میزدم! چون میدانستم میخواهم همه چیز را پس بگیرم! پیروزی بزرگ من نزدیک است !
 
 
-install hiddify & copy the raw link!
+install hiddify & copy the raw link in it!
